@@ -1,4 +1,4 @@
-## Hi there 👋
+# Carlos Lozano aka Pidual 🔥
 
 <!--
 **Pidual/Pidual** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
