@@ -1,5 +1,5 @@
 # Carlos Lozano aka Pidual 🔥
-
+![Geometry Dash Normal](./gdnormal.png)
 <!--
 **Pidual/Pidual** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
