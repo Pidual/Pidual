@@ -1,5 +1,5 @@
 # Carlos Lozano aka Pidual 🔥
-[Geometry Dash Normal](./gdnormal.png)
+
 
 
 
