@@ -10,5 +10,4 @@ Here are some ideas to get you started:
 - 📫 How to reach me: carlosmapache1@gmail.com...
 - ⚡ Fun fact: im leanring to paint...
 
-
-![IMG-20240606-WA0075](https://github.com/user-attachments/assets/5492e00a-82cd-42e8-86f3-29d73e6fe239)
+![sadADASdasQW12111211](https://github.com/user-attachments/assets/be337cad-b095-4b3c-9fca-f18958786de6)
